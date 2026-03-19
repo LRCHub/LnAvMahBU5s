@@ -1,0 +1,77 @@
+# EXILE feat.VERBAL (m-flo) – 銀河鉄道999 (EXILE CATCHY BEST)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+The Galaxy Express 999
+The Galaxy Express 999
+The Galaxy Express 999
+The Galaxy Express 999
+Will take you on a journey
+
+さあ行くんだ
+その顔を上げて
+新しい風に
+心を洗おう
+古い夢は置いていくがいい
+再び始まる ドラマのために
+あの人はもう
+思い出だけど
+君を遠くで見つめてる
+
+The Galaxy Express 999
+Will take you on a journey
+A never ending journey
+A journey to the stars
+
+そうさ君は 気づいてしまった
+やすらぎよりも 素晴らしいものに
+地平線に 消える瞳には
+いつしかまぶしい 男の光
+あの人の目が うなづいていたよ
+別れも 愛のひとつだと
+
+The Galaxy Express 999
+Will take you on a journey
+A never ending journey
+A journey to the stars
+
+Express three nine
+Trains planes electrify
+Can't fake the ways that I
+Feel so real I can't deny
+I'm no fool, don't be cruel
+This WHAT we do, when we in the room
+プロメシューム目がけてアンドロメダに zoom
+Raise that level of boom!
+そしたら一面、異次元、ディスタンス
+のあるとこまで take you there
+Hands in the air like yall don't care
+Feel so right can't be wrong
+結局 human after all
+
+The Galaxy Express 999
+Will take you on a journey
+A never ending journey
+A journey to the stars
+
+The Galaxy Express 999
+Will take you on a journey
+A never ending journey
+A journey to the stars
+
+The Galaxy Express 999
+Will take you on a journey
+A never ending journey
+A journey to the stars
+
+The Galaxy Express 999
+Will take you on a journey
+A never ending journey
+A journey to the stars
+
+The Galaxy Express 999
+The Galaxy Express 999
+Will take you on a journey
+A journey to the stars
+```
